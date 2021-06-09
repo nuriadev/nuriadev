@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nuriadev
+- 👀 I’m interested in mostly Front End
+- 🌱 I just finished my higher vocational training on Web Development and I'm trying to improve my skills
+- 📫 You can reach me on LinkedIn https://www.linkedin.com/in/nuria-lahoz-bonaventura/ ...
